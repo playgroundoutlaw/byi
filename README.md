@@ -7,7 +7,7 @@ I'm not gonna make this super fancy nd all its just a lil information ab my beha
 
 > 🌟 - I make kms and some nsfw jokes and also say reclaimed slurs around people im close with. If that bothers you, please lmk so I'll filter myself around you. The comfort of ppl I care for is my #1 priority
 
-> 🌟 - I tend to get moodswings easily.. and can get REALLY nervous easily. If I have iwc/iwec in my tag then I'm having a mood swing and I'll be less talkative
+> 🌟 - I tend to get moodswings easily.. and can get REALLY nervous easily. If I have iwc/iwec(interract with care/interract with EXTRA care) in my tag then I'm having a mood swing or im overwhelmed and I'll be less talkative
 
 > 🌟 - Ily oomfs, I LOVE YOU OOMFS!!! Guys did I mention I love my OOMFIES BAKES THEM INTO A STRAWBERRY PIE and EXPLODES THEM WITH MY MIND💥💥💥💥 I love my oomfies and I tend to get really clingy around you guys if that's bothersome please let me know and I'll have self control (IM NOTMAL ABOUT MY OOMIFES TRUST)
 > I also love my partner a lot.. LOSES MY MARBLES but sadly, as far as I know they don't play ponytown...uurgrhh sad voilin while tears run down my lesbian face
