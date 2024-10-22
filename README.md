@@ -14,8 +14,8 @@ I'm not gonna make this super fancy nd all its just a lil information ab my beha
 
 # DNI!!! DEE EN EYE.
 
-❗️ Basic dni criteria (racists, homophobes, pedophiles)
-❗️ Proshippers/Darkshippers whatever the fuck kinda weirdo names y'all have go away
-❗️ Skin copiers be original for once goddamn
-❗️ People who literally harrass/threaten others for shipping/not liking a ship
-❗️ Bive, Split, Infected,(Regretevator) Vine staff, Rocket, Scythe and Broker(Phighting) haters. If you hate on them infront of me I will block you with no hesitation
+>❗️ Basic dni criteria (racists, homophobes, pedophiles)
+>❗️ Proshippers/Darkshippers whatever the fuck kinda weirdo names y'all have go away
+>❗️ Skin copiers be original for once goddamn
+>❗️ People who literally harrass/threaten others for shipping/not liking a ship
+>❗️ Bive, Split, Infected,(Regretevator) Vine staff, Rocket, Scythe and Broker(Phighting) haters. If you hate on them infront of me I will block you with no hesitation
