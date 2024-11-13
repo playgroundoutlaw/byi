@@ -1,4 +1,4 @@
-# Before you interact!
+# Before you interact! (OUTDATED! LOOK AT MY RENTRY FOR NEWER ABOUT ME)
 I'm not gonna make this super fancy nd all its just a lil information ab my behavior and boundaries in general on pt ^_^
 
 > 🌟 - I' m always open to people wanting to cuddle or int with me! Though my social skills are reeallly bad and I get really shy with new people especially oomfies so I tend to be quiet most the time and just observe. It'll take me a while to be 'less awkward' and actually brainrot you with my yapping so please be patient with me!
